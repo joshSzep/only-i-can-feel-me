@@ -278,7 +278,6 @@ Jyeunn tied off the cloth bag around the bell.
 
 "We're usually here around six-thirty if you ever want to come early," they said. "Mostly it's just this. Chairs, kettle, trying to convince the thermostat not to punish us."
 
-The offer was given in exactly the way everything else here had been given: without appetite.
 The offer was given in exactly the way everything else here had been given: without pressure.
 
 Leah looked at the stacked chairs, the mats leaning against the wall, the oranges in the bowl waiting for next week.
