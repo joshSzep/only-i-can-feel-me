@@ -6,6 +6,12 @@ It predates the decentralized online movement and reflects the thinking of the f
 
 Later factions quote fragments of this document, often without its original nuance.
 
+In particular, later factions detach the language of sovereignty from the manifesto's original restraint and turn it into a harder formula:
+
+true sovereignty allows no compromise.
+
+That sentence does not appear in the founding manifesto itself, but it emerges from later selective reading of it.
+
 ---
 
 ## The Last Boundary

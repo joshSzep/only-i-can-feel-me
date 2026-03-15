@@ -26,6 +26,16 @@ Explores:
 - the psychology of radicalization
 - how movements change once they grow beyond their founders
 
+This book begins earlier than the opening of *What It Feels Like to Be You*.
+
+HumansRHumans forms during the Empathy Engine's pre-launch development years.
+
+That means the movement already exists by the time Shelby publicly announces the technology and the first novel begins.
+
+The public breakthrough does not create HumansRHumans.
+
+It accelerates and transforms a movement whose founding wound is older and more intimate.
+
 ---
 
 The two books form a philosophical pair.

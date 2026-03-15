@@ -6,7 +6,15 @@ The story explores the rise, evolution, and fragmentation of an underground move
 
 The novel follows a **new recruit** who gradually becomes radicalized through belonging, ideology, and purpose.
 
-The movement originates within a **Sangha-like contemplative community** concerned about the ethical implications of empathy technology. After a tragic event involving the technology, part of the community breaks away and forms HumansRHumans.
+The movement originates within a **Sangha-like contemplative community** concerned about the ethical implications of empathy technology.
+
+Some members of that community become involved in the Empathy Engine's earliest development because long-term meditators are unusually good at describing subtle inner states with precision.
+
+One respected Sangha member helps with early phenomenology and calibration work, then comes to believe that the real danger is not only machine-mediated empathy itself, but the capture and retention of emotional states as reusable data.
+
+When that warning is effectively proven true inside the development process, the resulting betrayal fractures the community.
+
+Part of the Sangha breaks away and forms HumansRHumans **before the opening events of *What It Feels Like to Be You***.
 
 What begins as a sincere philosophical resistance slowly evolves into a decentralized global movement.
 
