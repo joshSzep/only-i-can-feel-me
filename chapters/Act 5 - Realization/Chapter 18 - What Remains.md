@@ -40,6 +40,8 @@ That was how she knew something fundamental had.
 
 She made coffee she did not want and stood at the kitchen counter drinking it while the channels refreshed themselves. A new intake request had come in overnight from a graduate student in Boston who wrote that the Minform thread had shown him there were still "serious people refusing the regulated lie." Another came from a woman in Phoenix whose sister had gone through an approved empathy-linked therapy pilot and now insisted the relief had been real but the memory of exposure was worse. The first request arrived at certainty. The second arrived at hurt. Both could now be housed by the same structure.
 
+The structure had edges now in cities Leah would never visit and motives it no longer needed to sort before making room for them.
+
 That, too, was part of what remained.
 
 Not just ideology.
@@ -174,7 +176,7 @@ They did not rush to soften it.
 
 That, too, was part of why she had trusted them.
 
-After a moment Jyeunn said, "The wound is still real. That's what makes this difficult. The harms were not invented. The law remains partial. Some of the people in those channels are there because something was actually done to them and no ordinary language held it long enough." Their voice had not thickened, but sorrow had entered it all the same. "Movements do not survive only because they are correct. They survive because they become rooms where people can put what the world has not known what to do with. After that, ending them is no longer just an argument about truth. It is an argument about where all those people are supposed to go."
+After a moment Jyeunn said, "The wound is still real. That's what makes this difficult. The harms were not invented. The law remains partial. It narrowed futures. It did not go back for Martha. No one answered for MF-17 except in the language of files." Their voice had not thickened, but sorrow had entered it all the same. "Some of the people in those channels are there because something was actually done to them and no ordinary language held it long enough. Movements do not survive only because they are correct. They survive because they become rooms where people can put what the world has not known what to do with. After that, ending them is no longer just an argument about truth. It is an argument about where all those people are supposed to go."
 
 Leah leaned both hands against the table edge.
 
