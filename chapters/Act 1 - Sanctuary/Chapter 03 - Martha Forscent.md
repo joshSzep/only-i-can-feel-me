@@ -137,6 +137,7 @@ Before she could say anything that might make the moment too large, a woman from
 Again the light ripple of laughter. Again the room adjusting around them without strain.
 
 Leah stayed where she was with the paper cup cooling in her hands. Some piece of her had expected that if Jyeunn was the kind of person others quietly orbited, there would be some visible mechanism for it. Charisma. persuasion. story. What she found instead was steadier and, because of that, more difficult to discount. Their attention never seemed hungry. Their humor never seemed deployed. Nothing about them lunged.
+Leah stayed where she was with the paper cup cooling in her hands. Some piece of her had expected that if Jyeunn was the kind of person others quietly orbited, there would be some visible mechanism for it. Charisma. persuasion. story. What she found instead was steadier and, because of that, more difficult to discount. Their humor never seemed deployed. Nothing about them lunged.
 
 The room shifted as someone new entered from the hall. The conversation nearest the door paused without breaking. Leah turned because several other people had, not because anyone announced the arrival.
 
@@ -262,10 +263,4 @@ Then she opened the calendar and checked next Thursday even though she already k
 
 She was no longer merely curious about the room above the florist.
 
-Something else had entered.
-
-Not belief yet.
-
-Not commitment.
-
-But the sense, sharp enough to disturb her, that a serious question had found the right language at last and would not easily go back to sleep.
+A serious question had found the right language at last, sharp enough to disturb her and unlikely to go back to sleep.

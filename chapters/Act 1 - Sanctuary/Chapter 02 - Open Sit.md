@@ -204,4 +204,4 @@ She did not think, these are my people.
 
 The truth was quieter and, for that reason, harder to dismiss.
 
-She wanted to see the room again.
+She wanted to see the room again next Thursday.

@@ -198,6 +198,4 @@ Then she stood in the kitchen, looking at the new square of time as if it belong
 
 She did not feel hopeful.
 
-What she felt was smaller and, because of that, harder to dismiss.
-
-She felt unwilling to close the door before seeing the room.
+What she felt was smaller and, because of that, harder to dismiss: an unwillingness to close the door before seeing the room for herself.
