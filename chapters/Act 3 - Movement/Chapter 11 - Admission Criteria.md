@@ -28,7 +28,7 @@ Leah did not admit him to internal. She moved him to public-updates only and clo
 
 forwarded / unknown path
 
-Ravi's sheet had become cleaner than anything else in the movement. Source. access level. concerns. follow-up. duplicate? He never used the comment field for opinions when a shorter fact would do. Leah trusted him increasingly because he behaved as if documentation were a way of reducing appetite rather than extending it.
+Ravi's sheet had become cleaner than anything else in the movement. Source. Access level. Concerns. Follow-up. Duplicate? He never used the comment field for opinions when a shorter fact would do. Leah trusted him increasingly because he behaved as if documentation were a way of reducing appetite rather than extending it.
 
 That week his color-coding acquired a fourth shade.
 

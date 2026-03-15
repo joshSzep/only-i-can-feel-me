@@ -164,7 +164,7 @@ Nora stood too.
 
 "That at least I can help with."
 
-By the time Leah left, it was fully dark. She drove home with the windows up and the radio off, the email's phrases moving through her head with the persistence of contamination. comparative integrity assessment. internal model consistency. no identifying personal narrative content.
+By the time Leah left, it was fully dark. She drove home with the windows up and the radio off, the email's phrases moving through her head with the persistence of contamination. Comparative integrity assessment. Internal model consistency. No identifying personal narrative content.
 
 At a light on Wilshire she found herself saying, aloud to the car, "It was hers," as if the sentence required a witness even when she was alone.
 
@@ -176,7 +176,7 @@ The letter came from an ethics liaison office with three names in the signature 
 
 Leah read the phrase subjective misunderstanding three times before moving on.
 
-By then the break room around her had acquired its usual midday noise. Microwave doors. ice dispenser. Someone arguing cheerfully about whether a product launch deck needed more human warmth and less clinical certainty, as if those two things were ordinary design variables living on the same slider. Brandon came in, saw her face, and paused halfway to the coffee machine.
+By then the break room around her had acquired its usual midday noise. Microwave doors. Ice dispenser. Someone arguing cheerfully about whether a product launch deck needed more human warmth and less clinical certainty, as if those two things were ordinary design variables living on the same slider. Brandon came in, saw her face, and paused halfway to the coffee machine.
 
 "You look like policy just invented a new crime against syntax," he said.
 
@@ -276,7 +276,7 @@ Before Jyeunn could answer, Martha did.
 
 Her voice never rose. That was what gave it reach.
 
-Nora began passing copies around the circle. The papers moved from hand to hand with a care that felt almost liturgical and nothing like comfort. Leah took one and looked again at the same dead phrases. evolving terminology. derivative calibration outputs. precautionary rather than remedial.
+Nora began passing copies around the circle. The papers moved from hand to hand with a care that felt almost liturgical and nothing like comfort. Leah took one and looked again at the same dead phrases. Evolving terminology. Derivative calibration outputs. Precautionary rather than remedial.
 
 She could feel the room splitting not by affection or even by outrage, but by what each person still believed institutions were capable of once they had crossed a line and named the crossing a process issue.
 

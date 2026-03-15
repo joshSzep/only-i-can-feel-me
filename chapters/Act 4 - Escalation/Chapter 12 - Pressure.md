@@ -50,7 +50,7 @@ She left it.
 
 That choice became visible within an hour.
 
-By noon, the thread had turned from abstract ethics to a list of institutions attached to the panel on Empathy Systems and Clinical Trust. Hospital affiliation. clinical fellowship sponsor. continuing-education host. conference venue. board members listed publicly on the foundation page. None of it had the feel of ranting. Ravi began a shared sheet titled Panel Response Contacts. Nora dropped in once to correct a legal citation and then disappeared again. Celia suggested dividing actions into public letter, professional complaint, and attendance pressure. Daniel proposed participant testimony if anyone consented. A newer member named Marisol, a public-interest communications director from San Diego, offered to draft language that would be "firm enough to generate consequence without drifting into language they can dismiss as menace."
+By noon, the thread had turned from abstract ethics to a list of institutions attached to the panel on Empathy Systems and Clinical Trust. Hospital affiliation. Clinical fellowship sponsor. Continuing-education host. Conference venue. Board members listed publicly on the foundation page. None of it had the feel of ranting. Ravi began a shared sheet titled Panel Response Contacts. Nora dropped in once to correct a legal citation and then disappeared again. Celia suggested dividing actions into public letter, professional complaint, and attendance pressure. Daniel proposed participant testimony if anyone consented. A newer member named Marisol, a public-interest communications director from San Diego, offered to draft language that would be "firm enough to generate consequence without drifting into language they can dismiss as menace."
 
 That sentence, too, sounded adult.
 
@@ -96,7 +96,7 @@ Leah watched Daniel circle one of the names on Ravi's sheet: Dr. Evelyn Sato, fo
 
 "Sato is the clearest point of contact," Daniel said. "Not because she's singularly guilty. Because she's public, institutionally legible, and already standing under the language we're contesting."
 
-"Then make the pressure institutional by routing it through every professional surface she is using," Marisol said. "Host. hospital. licensing board. continuing-ed sponsor. panel moderator. Not personal attack. Consequence mapping."
+"Then make the pressure institutional by routing it through every professional surface she is using," Marisol said. "Host. Hospital. Licensing board. Continuing-ed sponsor. Panel moderator. Not personal attack. Consequence mapping."
 
 Leah felt the chill of the phrase immediately.
 

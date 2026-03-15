@@ -2,7 +2,7 @@
 
 The first HumansRHumans meeting took place in a probate conference room with somebody else's inheritance chart still faintly ghosting the whiteboard.
 
-Leah stood in the doorway a second longer than necessary, taking in the room's municipal sadness. Gray carpet. a rectangular table too long for warmth. stackable chairs with navy seats. a carafe of water beside a sleeve of paper cups. Through the glass wall that looked onto the darkened office beyond, she could see cubicles, filing cabinets, and the small green light of a copier left on overnight as if bureaucracy itself preferred not to sleep completely.
+Leah stood in the doorway a second longer than necessary, taking in the room's municipal sadness. Gray carpet. A rectangular table too long for warmth. Stackable chairs with navy seats. A carafe of water beside a sleeve of paper cups. Through the glass wall that looked onto the darkened office beyond, she could see cubicles, filing cabinets, and the small green light of a copier left on overnight as if bureaucracy itself preferred not to sleep completely.
 
 Nora had erased most of the old diagram, but not all of it. A few dry-erase remnants remained in the top corner: trust, residue, beneficiary, a rectangle with arrows pointing outward. Beneath that, in fresh black marker, she had written:
 
@@ -124,7 +124,7 @@ Daniel said, "Then we need a public list and an inner list."
 
 Tomas finally sat down.
 
-"So what are we screening for? Agreement? credibility? discipline?"
+"So what are we screening for? Agreement? Credibility? Discipline?"
 
 "Capacity," Jyeunn said.
 
@@ -146,7 +146,7 @@ Everyone looked at her. Not suspiciously. With attention.
 
 She kept going because stopping would have made the sentence sound accidental.
 
-"If outrage gets people faster access than discipline, you'll build around outrage. If grief becomes proof of seriousness, people will perform grief. If the first inner space is too loose, the people who most want to be seen wanting this will dominate before the people most damaged by it figure out whether it's safe to speak." She looked at the agenda in front of her, not because it contained the answer but because looking at people for too long while saying something true still made her feel overexposed. "So you have to decide what the first door is for. Witness? Support? organizing? philosophy? press? If it's all of them, the loudest use wins."
+"If outrage gets people faster access than discipline, you'll build around outrage. If grief becomes proof of seriousness, people will perform grief. If the first inner space is too loose, the people who most want to be seen wanting this will dominate before the people most damaged by it figure out whether it's safe to speak." She looked at the agenda in front of her, not because it contained the answer but because looking at people for too long while saying something true still made her feel overexposed. "So you have to decide what the first door is for. Witness? Support? Organizing? Philosophy? Press? If it's all of them, the loudest use wins."
 
 Nora's fingers had stopped above the keyboard.
 
@@ -238,7 +238,7 @@ People left in twos and threes. Amina to finish notes from the clinic. Daniel to
 
 Soon only Jyeunn, Nora, and Leah remained.
 
-The office after-hours had its own kind of fatigue. Hall lights dimmed. copier cycling somewhere down the corridor. the building settling into its cheaper nighttime self. Nora was packing cables into her bag with the concentrated irritation of someone who considered every cord a personal affront. Jyeunn stood at the whiteboard looking at the principles list as if measuring what proportion of it would survive contact with time.
+The office after-hours had its own kind of fatigue. Hall lights dimmed. Copier cycling somewhere down the corridor. The building settling into its cheaper nighttime self. Nora was packing cables into her bag with the concentrated irritation of someone who considered every cord a personal affront. Jyeunn stood at the whiteboard looking at the principles list as if measuring what proportion of it would survive contact with time.
 
 Leah gathered the leftover printouts into one neat stack because no one had told her not to and because tidying paper still felt like the smallest honest use of hands.
 

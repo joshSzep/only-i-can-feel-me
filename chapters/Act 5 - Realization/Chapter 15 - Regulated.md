@@ -90,9 +90,9 @@ Because it was not.
 
 It did not call the news victory. It did not use the movement to enlarge itself. It named the thing that mattered most to the older moral vocabulary: honesty entering public structure at last, however late and however incompletely.
 
-The rest of her shift moved around the news without ever really incorporating it. Queue. rationale. submit. A mother challenging the removal of a clip of her teenage son's panic attack because the comments had become the only place strangers believed her. A livestream of a couple fighting over whether one of them had the right to post a hospital bracelet. Platform language about privacy harm and exploitative intimacy. Everywhere the same old bargain between suffering and circulation, but now with her phone still warming every few minutes beneath the desk as the channels filled with links, summaries, arguments, and the peculiar, embarrassed relief of people discovering that some of what they had said in fury had finally been ratified by institutions they did not trust.
+The rest of her shift moved around the news without ever really incorporating it. Queue. Rationale. Submit. A mother challenging the removal of a clip of her teenage son's panic attack because the comments had become the only place strangers believed her. A livestream of a couple fighting over whether one of them had the right to post a hospital bracelet. Platform language about privacy harm and exploitative intimacy. Everywhere the same old bargain between suffering and circulation, but now with her phone still warming every few minutes beneath the desk as the channels filled with links, summaries, arguments, and the peculiar, embarrassed relief of people discovering that some of what they had said in fury had finally been ratified by institutions they did not trust.
 
-By noon, public statements were already proliferating. Regulatory agencies. hospital associations. investor calls framed as sober adaptation. An op-ed draft from Marisol that she had not yet posted, only circulated internally, arguing that the package did not heal the past but might close the most expansionist futures. Ravi was annotating the rule language in a side document. Nora had opened a temporary channel called implementation-watch and pinned three legal summaries so no one could pretend they had read more than headlines if they had not.
+By noon, public statements were already proliferating. Regulatory agencies. Hospital associations. Investor calls framed as sober adaptation. An op-ed draft from Marisol that she had not yet posted, only circulated internally, arguing that the package did not heal the past but might close the most expansionist futures. Ravi was annotating the rule language in a side document. Nora had opened a temporary channel called implementation-watch and pinned three legal summaries so no one could pretend they had read more than headlines if they had not.
 
 The movement was behaving, for a brief strange interval, like something capable of concluding a sentence.
 
@@ -126,7 +126,7 @@ The last two words were not cynicism. Only caution.
 
 Daniel exhaled through his nose and rubbed a hand once over his mouth.
 
-"I keep thinking about Martha," he said. "About how impossible it felt, for a while, to get anyone outside a room like this even to admit the category of harm. And now the language is federal. Severe limits. criminal penalties. audit requirements." He looked around the room, embarrassed by what he was about to say and saying it anyway. "I don't know. Maybe there should be some version of stopping in that. Or narrowing. Or becoming something else."
+"I keep thinking about Martha," he said. "About how impossible it felt, for a while, to get anyone outside a room like this even to admit the category of harm. And now the language is federal. Severe limits. Criminal penalties. Audit requirements." He looked around the room, embarrassed by what he was about to say and saying it anyway. "I don't know. Maybe there should be some version of stopping in that. Or narrowing. Or becoming something else."
 
 The sentence stayed in the air longer than Leah expected.
 
@@ -134,7 +134,7 @@ Not because it was naive.
 
 Because everyone in the room understood that he had said something almost none of them had allowed themselves to form clearly even in private. The possibility that the movement might not have to keep becoming sharper in order to remain honest. The possibility that having moved the world this far might obligate them, morally, to ask what remained necessary and what had simply become familiar.
 
-Nora said, "Implementation watch. Archive work. participant support. litigation tracking if they start gutting it through exceptions."
+Nora said, "Implementation watch. Archive work. Participant support. Litigation tracking if they start gutting it through exceptions."
 
 Her tone was practical, but Leah could hear what made the list possible.
 

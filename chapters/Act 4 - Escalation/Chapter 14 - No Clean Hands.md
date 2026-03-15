@@ -26,7 +26,7 @@ Leah read the line twice.
 
 The document was serious. It was exact. It was also, she could feel immediately, late.
 
-That feeling stayed with her through the rest of the shift. Queue. decision. rationale. submit. A clip of a woman recording herself outside a fertility clinic explaining why she had started posting hormone results because the raw numbers felt truer than her own account of panic. A man filming his brother sobbing in a parking lot after discharge papers. A policy memo about escalating public sensitivity around clinical privacy claims. Everywhere the same structure, the same translation of people into portable proof. By the time Leah badged out, Jyeunn's note had already picked up nineteen replies and two side threads.
+That feeling stayed with her through the rest of the shift. Queue. Decision. Rationale. Submit. A clip of a woman recording herself outside a fertility clinic explaining why she had started posting hormone results because the raw numbers felt truer than her own account of panic. A man filming his brother sobbing in a parking lot after discharge papers. A policy memo about escalating public sensitivity around clinical privacy claims. Everywhere the same structure, the same translation of people into portable proof. By the time Leah badged out, Jyeunn's note had already picked up nineteen replies and two side threads.
 
 Most of the replies began with gratitude.
 
@@ -38,7 +38,7 @@ Necessary reset.
 
 We need this discipline.
 
-And then, beneath the gratitude, caveats. Questions. tactical refinements shaped like assent.
+And then, beneath the gratitude, caveats. Questions. Tactical refinements shaped like assent.
 
 Does core review mean pause or simply higher threshold?
 
@@ -188,7 +188,7 @@ The sentence slowed nothing.
 
 Jyeunn did not respond that night.
 
-Leah sat at the kitchen table with moderator view open and the urge to do something that had no operational form. Nothing in Second Bell's post crossed a clean rule. If anything, the account had absorbed the new limits and re-expressed them in more portable doctrine. disciplined. public. nonhumiliating. The exact language of the movement's own restraint had become the mechanism by which restraint could be bypassed without ever having to name itself as bypassed.
+Leah sat at the kitchen table with moderator view open and the urge to do something that had no operational form. Nothing in Second Bell's post crossed a clean rule. If anything, the account had absorbed the new limits and re-expressed them in more portable doctrine. Disciplined. Public. Nonhumiliating. The exact language of the movement's own restraint had become the mechanism by which restraint could be bypassed without ever having to name itself as bypassed.
 
 She did not delete the post.
 

@@ -16,7 +16,7 @@ She parked half a block away because the curb in front was full and sat for a mo
 
 Leah took her keys, her bag, and the address strip, though she no longer needed it, and got out.
 
-The front of the shop smelled cooler than the street. Wet stems. dirt. Something peppery and sweet underneath, probably stock or freesia. The lights were low enough that the flowers did not look like product first. A woman in an apron glanced up from trimming leaves at a side table and nodded once toward the back without interrupting what her hands were doing.
+The front of the shop smelled cooler than the street. Wet stems. Dirt. Something peppery and sweet underneath, probably stock or freesia. The lights were low enough that the flowers did not look like product first. A woman in an apron glanced up from trimming leaves at a side table and nodded once toward the back without interrupting what her hands were doing.
 
 There were already shoes by the inner doorway.
 
@@ -92,7 +92,7 @@ After a while she realized with mild embarrassment that she was waiting to be ev
 
 This, more than anything, unsettled her.
 
-She had grown used to spaces that wanted something legible back. Attention. disclosure. performance. proof of engagement. Even grief, lately, seemed to require some kind of transcript. Here there was no field to fill. No explanation pane. She could be distracted without being disqualified. She could fail to transcend and still remain in the room.
+She had grown used to spaces that wanted something legible back. Attention. Disclosure. Performance. Proof of engagement. Even grief, lately, seemed to require some kind of transcript. Here there was no field to fill. No explanation pane. She could be distracted without being disqualified. She could fail to transcend and still remain in the room.
 
 At one point her mind emptied for perhaps three breaths, not into peace but into the simple absence of instruction. No clip. No label. No one asking what had happened to her. No one asking what she intended to do with it.
 
@@ -104,7 +104,7 @@ People stood in stages. Cushions shifted. A chair scraped. Someone coughed, then
 
 Several people rose and began moving slowly around the perimeter of the room in a loose circle whose lack of self-importance made it easier to watch. Leah stayed seated another minute, flexing sensation back into her foot, then stood because remaining seated had begun to feel like its own declaration.
 
-The walking portion was less strange than she had expected. It required only that she cross the same floorboards again and again while paying a little more attention than she normally gave to movement. Heel. foot. lift. place. The task was small enough to be bearable. Halfway through she noticed the florist smell more clearly: damp green, a sweetness nearly gone over, cold water in metal buckets. For some reason the smell affected her more than the bell had. It made the room feel temporary in the right way. Rented, improvised, unbranded. A place borrowed for attention, not converted into a lifestyle around it.
+The walking portion was less strange than she had expected. It required only that she cross the same floorboards again and again while paying a little more attention than she normally gave to movement. Heel. Foot. Lift. Place. The task was small enough to be bearable. Halfway through she noticed the florist smell more clearly: damp green, a sweetness nearly gone over, cold water in metal buckets. For some reason the smell affected her more than the bell had. It made the room feel temporary in the right way. Rented, improvised, unbranded. A place borrowed for attention, not converted into a lifestyle around it.
 
 The second sitting period was shorter. She knew enough now not to expect revelation. Her mind still wandered. Her back still argued with the chair. But the panic that she was doing it wrong had thinned. When the final bell came, it entered a body less defended than the one that had heard the first.
 
@@ -174,7 +174,7 @@ Only a fact generous enough to contain departure.
 
 Outside, the florist seemed brighter than before, or maybe her eyes had adjusted to another level of attention and now had to reset. The woman in the apron had gone. Buckets stood under cooler light like dark wells of stems and water. Leah put her shoes back on at the front threshold, one hand braced against the wall while she tied the laces. Through the glass she could see the room behind her in slices: chairs, moving figures, the kettle, a shoulder bending to pick up a dropped spoon.
 
-On the sidewalk the city resumed without apology. Traffic. phones. neon. A man eating from a takeout container on the hood of his car. A siren somewhere farther west. But the usual urge to seal herself back up before walking through it had eased.
+On the sidewalk the city resumed without apology. Traffic. Phones. Neon. A man eating from a takeout container on the hood of his car. A siren somewhere farther west. But the usual urge to seal herself back up before walking through it had eased.
 
 She did not call anyone. She did not put on a podcast. On the drive home she let the silence in the car remain silence.
 

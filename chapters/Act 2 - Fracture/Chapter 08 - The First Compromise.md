@@ -92,7 +92,7 @@ Nora said, "No. It is a moral merger."
 
 "Maybe because the moral merger is real," Daniel said. "If we start from the police report every time, the institution gets to keep calling the retained-session betrayal a specialized issue for specialists. Martha spent her last weeks trying to tell us it wasn't specialized."
 
-Leah thought of the vigil message, the phrase converging violences, the quick replies on her phone afterward. after everything they did to her. no more silence. She had been unsettled by the blur and still was. But she also knew what happened to language that arrived too disinfected. Institutions welcomed it, thanked it for its nuance, then filed it where urgency went to become process.
+Leah thought of the vigil message, the phrase converging violences, the quick replies on her phone afterward. After everything they did to her. No more silence. She had been unsettled by the blur and still was. But she also knew what happened to language that arrived too disinfected. Institutions welcomed it, thanked it for its nuance, then filed it where urgency went to become process.
 
 That recognition sat in her with the weight of complicity before she had even acted.
 

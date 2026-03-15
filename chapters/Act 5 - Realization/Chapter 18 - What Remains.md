@@ -50,7 +50,7 @@ Capacity.
 
 At work the day's queue was almost offensive in its familiarity. Escalations around hospital footage. Appeals from users who believed witnessing and exposure were the same thing if the exposed person had already become content elsewhere. A policy sync about the rise in emotionally intimate recordings attached to medical crowdfunding posts. Every sentence in the office kept circling the same dead center without ever naming it: what did the public think it was owed of another person's inwardness once need, profit, and testimony got braided together?
 
-Leah moved through the queue because she knew how. Accept. remove. escalate. annotate. The actions still lined up under her hands even while another structure, on another screen, was proving that knowledge and control were not the same category at all.
+Leah moved through the queue because she knew how. Accept. Remove. Escalate. Annotate. The actions still lined up under her hands even while another structure, on another screen, was proving that knowledge and control were not the same category at all.
 
 On her break she checked internal again.
 
@@ -78,7 +78,7 @@ She stared at the revised sentence until the screen dimmed.
 
 The machine continued.
 
-Not only the campaign machinery. The whole thing. Participant follow-up. archive work. intake review. note cleanup. legal tracking. reading-room. reminders about public updates. people asking whether Thursday's sit was still on. people offering rides. people requesting copies of the latest FAQ for campus groups Leah had never heard of.
+Not only the campaign machinery. The whole thing. Participant follow-up. Archive work. Intake review. Note cleanup. Legal tracking. reading-room. Reminders about public updates. People asking whether Thursday's sit was still on. People offering rides. People requesting copies of the latest FAQ for campus groups Leah had never heard of.
 
 An uncanny normality settled over all of it. Not because the movement had resolved its contradiction. Because contradiction had become one of the systems it knew how to metabolize.
 
@@ -98,7 +98,7 @@ One corner of their mouth shifted. Not quite a smile.
 
 "Yes."
 
-She crossed to the side table and began unstacking cups that did not need unstacking. The room smelled of stems, wet paper, and the faint metallic heat of the kettle base plugged in but not yet switched on. For a while there was only ceramic and water and the florist sounds from the front of the shop. Scissors. refrigerator hum. the little bell above the door.
+She crossed to the side table and began unstacking cups that did not need unstacking. The room smelled of stems, wet paper, and the faint metallic heat of the kettle base plugged in but not yet switched on. For a while there was only ceramic and water and the florist sounds from the front of the shop. Scissors. Refrigerator hum. The little bell above the door.
 
 Leah said, "Did you sleep?"
 

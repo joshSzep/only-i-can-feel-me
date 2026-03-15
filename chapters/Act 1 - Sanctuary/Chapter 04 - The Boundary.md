@@ -22,7 +22,7 @@ The caption added later sat across the lower half of the screen in a clean paste
 
 THIS IS WHAT THEY DON'T SHOW YOU.
 
-In the auxiliary pane, sampled reactions had already begun arranging the man into public use. Prayers. judgments. amateur diagnoses. One commenter wrote that clinics should be allowed to use emotional-state mirroring so families could prove what was happening in real time. Another said that once affective mapping became standard, no one would have to accuse anyone of exaggerating distress ever again. A third asked whether the clip had been shared with the medical team or whether there was "full biometric context."
+In the auxiliary pane, sampled reactions had already begun arranging the man into public use. Prayers. Judgments. Amateur diagnoses. One commenter wrote that clinics should be allowed to use emotional-state mirroring so families could prove what was happening in real time. Another said that once affective mapping became standard, no one would have to accuse anyone of exaggerating distress ever again. A third asked whether the clip had been shared with the medical team or whether there was "full biometric context."
 
 Leah muted the video, then unmuted it. Guidance still preferred audio review where feasible. The man said, more softly this time, "Please don't make me visible like this."
 
@@ -120,7 +120,7 @@ Jyeunn came in from the hall carrying the brass bell and a bundle of folded blan
 
 Nora made a soft sound that might have been a laugh and went back to the lamps.
 
-The room assembled itself around work. Cups unstacked. kettle filled. cushions placed. Someone adjusted the thermostat and declared the building permanently opposed to human comfort. A younger man Leah recognized from two weeks earlier arrived carrying a bag of cookies and was immediately sent back out for napkins. Nothing in the activity felt performatively communal. That was part of what made it satisfying. The room did not ask anyone to symbolize belonging. It only kept presenting tasks small enough to enter.
+The room assembled itself around work. Cups unstacked. Kettle filled. Cushions placed. Someone adjusted the thermostat and declared the building permanently opposed to human comfort. A younger man Leah recognized from two weeks earlier arrived carrying a bag of cookies and was immediately sent back out for napkins. Nothing in the activity felt performatively communal. That was part of what made it satisfying. The room did not ask anyone to symbolize belonging. It only kept presenting tasks small enough to enter.
 
 By the time people began arriving in earnest, Leah had already helped make the room possible. The fact altered her relation to it in a way she did not trust enough to name, though she noticed she no longer paused at the doorway as if awaiting terms.
 
@@ -272,7 +272,7 @@ Jyeunn nodded. "A burden on the whole community."
 
 Nora snorted and disappeared into the hall.
 
-Leah set the napkins down and began stacking the remaining chairs with Jyeunn. Up close, the work was satisfyingly unimportant. Metal legs. rubber feet. the soft complaint of folding mechanisms that had seen too many Thursdays. When the last chair was against the wall, the back room no longer looked like refuge. It looked like a rented space again, temporary and plain. That should have diminished it. Instead it made the fact of its existence feel more deliberate.
+Leah set the napkins down and began stacking the remaining chairs with Jyeunn. Up close, the work was satisfyingly unimportant. Metal legs. Rubber feet. The soft complaint of folding mechanisms that had seen too many Thursdays. When the last chair was against the wall, the back room no longer looked like refuge. It looked like a rented space again, temporary and plain. That should have diminished it. Instead it made the fact of its existence feel more deliberate.
 
 Jyeunn tied off the cloth bag around the bell.
 

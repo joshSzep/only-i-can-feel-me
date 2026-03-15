@@ -67,7 +67,7 @@ Leah clicked into channel descriptions as they spoke.
 
 "Also agreed."
 
-"Internal-discussion needs rules in the header, not just in a pinned document nobody reads. Evidence. no rumor. no press contact through this channel. no posting material that isn't yours to disclose."
+"Internal-discussion needs rules in the header, not just in a pinned document nobody reads. Evidence. No rumor. No press contact through this channel. No posting material that isn't yours to disclose."
 
 Nora was quiet for a second.
 
@@ -119,7 +119,7 @@ Not power exactly.
 
 Delegated responsibility wearing power's silhouette.
 
-She shut the laptop at one-thirteen in the morning and stood at the counter a moment longer than necessary before going to bed. The apartment had the same old sounds in it. Refrigerator motor. pipes in the wall. laughter from somebody else's television bleeding through drywall. But another rhythm had entered the place now. Not just meetings. Ongoingness.
+She shut the laptop at one-thirteen in the morning and stood at the counter a moment longer than necessary before going to bed. The apartment had the same old sounds in it. Refrigerator motor. Pipes in the wall. Laughter from somebody else's television bleeding through drywall. But another rhythm had entered the place now. Not just meetings. Ongoingness.
 
 By the next Tuesday, there were thirty-seven requests waiting in triage.
 
@@ -207,7 +207,7 @@ For decisions.
 
 Questions to ask before admitting someone deeper.
 
-Patterns in first messages that often meant performance. Words that had begun arriving with too much appetite inside them. sovereign, trespass, contamination, traitor. Names of people Jyeunn thought might need direct contact before they stumbled into public language not built to hold them.
+Patterns in first messages that often meant performance. Words that had begun arriving with too much appetite inside them. Sovereign, trespass, contamination, traitor. Names of people Jyeunn thought might need direct contact before they stumbled into public language not built to hold them.
 
 The notebook should have embarrassed her. Instead it gave her the same severe calm some people got from sharpened knives or alphabetized files. A room was becoming itself. She was helping decide how.
 

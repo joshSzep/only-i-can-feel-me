@@ -12,7 +12,7 @@ There was a breath, and then Nora said, in the flat voice people used when they 
 
 The kettle clicked off behind Leah with absurd courtesy.
 
-For a second the room stayed visually intact while meaning failed to arrive. Spoon. mug. unopened mail on the table. The folded dish towel by the sink. Then the sentence entered all at once and rearranged the kitchen around it.
+For a second the room stayed visually intact while meaning failed to arrive. Spoon. Mug. Unopened mail on the table. The folded dish towel by the sink. Then the sentence entered all at once and rearranged the kitchen around it.
 
 "What?" she said, not because she had not heard the words but because the order they had been placed in felt structurally impossible.
 
@@ -246,7 +246,7 @@ That was what frightened her.
 
 The message went out before she left.
 
-On the drive home, her phone kept lighting up on the passenger seat with replies arriving in quick succession. shocked. unforgivable. after everything they did to her. no more silence. The city moved around her with its usual careless continuity. Brake lights. storefronts. a bus bench ad promising better behavioral insight through integrated health data.
+On the drive home, her phone kept lighting up on the passenger seat with replies arriving in quick succession. Shocked. Unforgivable. After everything they did to her. No more silence. The city moved around her with its usual careless continuity. Brake lights. Storefronts. A bus bench ad promising better behavioral insight through integrated health data.
 
 At a red light on Vermont she thought of Nora's sentence, the same world, and of the other sentence that had gone out beneath it. Converging violences.
 

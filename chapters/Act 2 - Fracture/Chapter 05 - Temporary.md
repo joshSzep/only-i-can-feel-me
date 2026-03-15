@@ -140,7 +140,7 @@ Martha set her cup on the floor beside her chair.
 
 "The problem is not only mediation," she said. "It is retention. Replay. Comparison. Reference. Once a feeling can outlast the human moment in which it occurred, it becomes available to purposes not present at its birth." Her voice remained even, almost dry. "People keep imagining the danger as voyeurism. That is childish. The larger danger is infrastructure."
 
-Leah thought of her office. Dashboards. summaries. model confidence. All the systems that called themselves neutral once a human life had been flattened enough to travel.
+Leah thought of her office. Dashboards. Summaries. Model confidence. All the systems that called themselves neutral once a human life had been flattened enough to travel.
 
 The nurse said, "But if somebody's having a severe internal event and can't describe it, I can still see why clinicians or families would want some kind of retained reference. Not because they want control. Because they don't want to fail the person next time."
 
@@ -266,7 +266,7 @@ Jyeunn looked down at the phone once before answering.
 
 The room, already quiet, seemed to withdraw even further from noise.
 
-Leah felt the phrase move through her with the same procedural chill as language from work dashboards and escalation notices. Session-derived. baseline. active. Words built to drain desecration of its heat and make it portable.
+Leah felt the phrase move through her with the same procedural chill as language from work dashboards and escalation notices. Session-derived. Baseline. Active. Words built to drain desecration of its heat and make it portable.
 
 Martha, who had been putting on her shoes by the door, stopped with one hand on the wall.
 
