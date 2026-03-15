@@ -81,14 +81,6 @@ The other explores the **defense of interiority**.
 
 ---
 
-## Status
-
-📖 **In development**
-
-This repository contains notes, worldbuilding, and manuscript drafts for the novel.
-
----
-
 ## Author
 
 **Joshua Szepietowski**
