@@ -100,13 +100,13 @@ He opened the refrigerator, scanned it, shut it again.
 
 Leah nodded once, not because she agreed with either of them but because neutrality had become her social default. She poured coffee she did not really want. The machine whined. Somewhere down the hall somebody laughed too loudly at something private. She took the paper cup and went to the window at the end of the corridor.
 
-From nine floors up, Los Angeles looked briefly organized. Sunlight had begun its late descent into gold, laying forgiveness over parking structures, office glass, the lanes of traffic already thickening into evening. In the distance the hills held still. Everything below kept trying to optimize itself. Delivery routes. ad placements. fertility windows. sleep cycles. attention. Now feeling, too, if the men on panels and the memos were to be believed. Feeling could be mapped, transmitted, clarified, made legible enough that no one would have to endure the ordinary humiliations of not being fully understood.
+From nine floors up, Los Angeles looked briefly organized. Sunlight had begun its late descent into gold, laying forgiveness over parking structures, office glass, the lanes of traffic already thickening into evening. In the distance the hills held still. Everything below kept trying to optimize itself. Delivery routes. Ad placements. Fertility windows. Sleep cycles. Attention. Now feeling, too, if the men on panels and the memos were to be believed. Feeling could be mapped, transmitted, clarified, made legible enough that no one would have to endure the ordinary humiliations of not being fully understood.
 
 Leah should have found the promise comforting. The failure to understand each other had done enough damage in her life to earn that. Instead she felt the opposite of comfort. Not outrage exactly. More like a narrowing in the chest, the body's own refusal to be solved that way.
 
 She finished half the coffee and threw the rest away.
 
-The rest of the shift passed in the usual administrative weather. Queue. decision. rationale. submit. Queue. decision. rationale. submit. By the time she badged out, the office had emptied just enough for the floor to look less like a workplace than a controlled experiment on endurance. Outside, evening had settled. The parking garage smelled faintly of heated dust.
+The rest of the shift passed in the usual administrative weather. Queue. Decision. Rationale. Submit. Queue. Decision. Rationale. Submit. By the time she badged out, the office had emptied just enough for the floor to look less like a workplace than a controlled experiment on endurance. Outside, evening had settled. The parking garage smelled faintly of heated dust.
 
 She drove east in traffic thick enough to flatten all ambition. At a red light on Venice, a motorcycle slid between lanes with the intimacy of something ignoring death out of habit. A bus pulled up beside her, wrapped in an ad for a precision-care clinic promising treatment tailored to the whole person. Someone inside the bus watched something on a phone without headphones, a smooth male voice saying, "Imagine if we no longer had to infer suffering from behavior alone." The signal clipped as the bus pulled forward. The line hung in the air for a second longer than the speaker had earned.
 
@@ -120,7 +120,7 @@ She set her bag down, kicked off her shoes, and stood in the middle of the livin
 
 The answer, as usual, was paperwork.
 
-There was a stack of unopened mail on the edge of the table she kept meaning to stop calling the table and start calling the desk, because tables belonged to people who had someone to eat with. She went through it standing up. Credit card statement. insurance explanation of benefits. a notice from the pharmacy she had forgotten to cancel after her mother's death. The automatic refill had finally expired on its own. She held the slip a second longer than necessary, reading the medication name as if the word itself had missed an update.
+There was a stack of unopened mail on the edge of the table she kept meaning to stop calling the table and start calling the desk, because tables belonged to people who had someone to eat with. She went through it standing up. Credit card statement. Insurance explanation of benefits. A notice from the pharmacy she had forgotten to cancel after her mother's death. The automatic refill had finally expired on its own. She held the slip a second longer than necessary, reading the medication name as if the word itself had missed an update.
 
 By the end of her mother's illness, care had become mostly administrative. There had been tenderness, yes, and fear, and the humiliating intimacies of the body, but what Leah remembered most clearly now were refill windows and specialist portals, laminated parking passes, output charts, passwords, phone trees, the notes app full of blood pressure readings, the yellow legal pad where she had once kept track of side effects in columns so careful they looked almost hopeful. She had expected grief to feel elemental when it came. Weather, maybe. Flooding. Fire. Instead much of it had arrived disguised as unfinished admin.
 
@@ -224,7 +224,7 @@ She parked half a block away because the curb in front was full and sat for a mo
 
 Leah took her keys, her bag, and the address strip, though she no longer needed it, and got out.
 
-The front of the shop smelled cooler than the street. Wet stems. dirt. Something peppery and sweet underneath, probably stock or freesia. The lights were low enough that the flowers did not look like product first. A woman in an apron glanced up from trimming leaves at a side table and nodded once toward the back without interrupting what her hands were doing.
+The front of the shop smelled cooler than the street. Wet stems. Dirt. Something peppery and sweet underneath, probably stock or freesia. The lights were low enough that the flowers did not look like product first. A woman in an apron glanced up from trimming leaves at a side table and nodded once toward the back without interrupting what her hands were doing.
 
 There were already shoes by the inner doorway.
 
@@ -300,7 +300,7 @@ After a while she realized with mild embarrassment that she was waiting to be ev
 
 This, more than anything, unsettled her.
 
-She had grown used to spaces that wanted something legible back. Attention. disclosure. performance. proof of engagement. Even grief, lately, seemed to require some kind of transcript. Here there was no field to fill. No explanation pane. She could be distracted without being disqualified. She could fail to transcend and still remain in the room.
+She had grown used to spaces that wanted something legible back. Attention. Disclosure. Performance. Proof of engagement. Even grief, lately, seemed to require some kind of transcript. Here there was no field to fill. No explanation pane. She could be distracted without being disqualified. She could fail to transcend and still remain in the room.
 
 At one point her mind emptied for perhaps three breaths, not into peace but into the simple absence of instruction. No clip. No label. No one asking what had happened to her. No one asking what she intended to do with it.
 
@@ -312,7 +312,7 @@ People stood in stages. Cushions shifted. A chair scraped. Someone coughed, then
 
 Several people rose and began moving slowly around the perimeter of the room in a loose circle whose lack of self-importance made it easier to watch. Leah stayed seated another minute, flexing sensation back into her foot, then stood because remaining seated had begun to feel like its own declaration.
 
-The walking portion was less strange than she had expected. It required only that she cross the same floorboards again and again while paying a little more attention than she normally gave to movement. Heel. foot. lift. place. The task was small enough to be bearable. Halfway through she noticed the florist smell more clearly: damp green, a sweetness nearly gone over, cold water in metal buckets. For some reason the smell affected her more than the bell had. It made the room feel temporary in the right way. Rented, improvised, unbranded. A place borrowed for attention, not converted into a lifestyle around it.
+The walking portion was less strange than she had expected. It required only that she cross the same floorboards again and again while paying a little more attention than she normally gave to movement. Heel. Foot. Lift. Place. The task was small enough to be bearable. Halfway through she noticed the florist smell more clearly: damp green, a sweetness nearly gone over, cold water in metal buckets. For some reason the smell affected her more than the bell had. It made the room feel temporary in the right way. Rented, improvised, unbranded. A place borrowed for attention, not converted into a lifestyle around it.
 
 The second sitting period was shorter. She knew enough now not to expect revelation. Her mind still wandered. Her back still argued with the chair. But the panic that she was doing it wrong had thinned. When the final bell came, it entered a body less defended than the one that had heard the first.
 
@@ -382,7 +382,7 @@ Only a fact generous enough to contain departure.
 
 Outside, the florist seemed brighter than before, or maybe her eyes had adjusted to another level of attention and now had to reset. The woman in the apron had gone. Buckets stood under cooler light like dark wells of stems and water. Leah put her shoes back on at the front threshold, one hand braced against the wall while she tied the laces. Through the glass she could see the room behind her in slices: chairs, moving figures, the kettle, a shoulder bending to pick up a dropped spoon.
 
-On the sidewalk the city resumed without apology. Traffic. phones. neon. A man eating from a takeout container on the hood of his car. A siren somewhere farther west. But the usual urge to seal herself back up before walking through it had eased.
+On the sidewalk the city resumed without apology. Traffic. Phones. Neon. A man eating from a takeout container on the hood of his car. A siren somewhere farther west. But the usual urge to seal herself back up before walking through it had eased.
 
 She did not call anyone. She did not put on a podcast. On the drive home she let the silence in the car remain silence.
 
@@ -480,13 +480,13 @@ Leah nodded.
 
 There was a pause in which a more ordinary person might have asked what brought her back, or whether last week had helped, or whether she lived nearby. Jyeunn asked none of those things. They moved to the front, set down the blanket, and crouched to adjust the edge of one mat that had folded under itself.
 
-The sit began the same way as before and not the same way. The bell. The room settling. The first few minutes of bodily grievance. Chair edge. breath. sounds from the street becoming background without becoming irrelevant. Leah's mind, predictably, supplied its own debris. A flagged comment thread from the afternoon. An unresolved reimbursement claim from her mother's final hospitalization that she still had not called about because there was no version of that phone call that would not feel like necromancy through admin. The fact that she had been thinking all day, in odd small flashes, about this room before she returned to it.
+The sit began the same way as before and not the same way. The bell. The room settling. The first few minutes of bodily grievance. Chair edge. Breath. Sounds from the street becoming background without becoming irrelevant. Leah's mind, predictably, supplied its own debris. A flagged comment thread from the afternoon. An unresolved reimbursement claim from her mother's final hospitalization that she still had not called about because there was no version of that phone call that would not feel like necromancy through admin. The fact that she had been thinking all day, in odd small flashes, about this room before she returned to it.
 
 But repetition had changed the terms. Last week the room had been a test. Tonight it was an environment. She knew, now, that no one would ask her afterward to make use of whatever had happened inside her. That knowledge altered the silence before it even began to work on her.
 
 When the first sit ended and people rose for walking, Leah stayed seated a moment longer, stretching her fingers against the metal frame of the chair. Someone moved past and put a hand lightly on the chair back to steady themselves without apologizing. Another person opened the side window half an inch and let cooler air enter in a thread. The room felt less like an event and more like a place with habits.
 
-During tea afterward, the conversations remained small and practical. Floor cushions. parking. whether the florist had always used that particular kind of eucalyptus. Leah stood near the edge of the table with a paper cup warming her hands and listened without the hard vigilance she brought to most groups. There were theories, yes, as the woman at the coffee shop had predicted. Los Angeles always supplied theories. But no one weaponized the vocabulary of care into a demand that everyone become more publicly known than they wanted.
+During tea afterward, the conversations remained small and practical. Floor cushions. Parking. Whether the florist had always used that particular kind of eucalyptus. Leah stood near the edge of the table with a paper cup warming her hands and listened without the hard vigilance she brought to most groups. There were theories, yes, as the woman at the coffee shop had predicted. Los Angeles always supplied theories. But no one weaponized the vocabulary of care into a demand that everyone become more publicly known than they wanted.
 
 Jyeunn was near the back table with a dish towel over one shoulder, drying a mug. When the room loosened into post-sit drift, they came over not quickly and not with the brightness of a person making pastoral rounds.
 
@@ -552,8 +552,7 @@ Before she could say anything that might make the moment too large, a woman from
 
 Again the light ripple of laughter. Again the room adjusting around them without strain.
 
-Leah stayed where she was with the paper cup cooling in her hands. Some piece of her had expected that if Jyeunn was the kind of person others quietly orbited, there would be some visible mechanism for it. Charisma. persuasion. story. What she found instead was steadier and, because of that, more difficult to discount. Their attention never seemed hungry. Their humor never seemed deployed. Nothing about them lunged.
-Leah stayed where she was with the paper cup cooling in her hands. Some piece of her had expected that if Jyeunn was the kind of person others quietly orbited, there would be some visible mechanism for it. Charisma. persuasion. story. What she found instead was steadier and, because of that, more difficult to discount. Their humor never seemed deployed. Nothing about them lunged.
+Leah stayed where she was with the paper cup cooling in her hands. Some piece of her had expected that if Jyeunn was the kind of person others quietly orbited, there would be some visible mechanism for it. Charisma. Persuasion. Story. What she found instead was steadier and, because of that, more difficult to discount. Their attention never seemed hungry. Their humor never seemed deployed. Nothing about them lunged.
 
 The room shifted as someone new entered from the hall. The conversation nearest the door paused without breaking. Leah turned because several other people had, not because anyone announced the arrival.
 
@@ -705,7 +704,7 @@ The caption added later sat across the lower half of the screen in a clean paste
 
 THIS IS WHAT THEY DON'T SHOW YOU.
 
-In the auxiliary pane, sampled reactions had already begun arranging the man into public use. Prayers. judgments. amateur diagnoses. One commenter wrote that clinics should be allowed to use emotional-state mirroring so families could prove what was happening in real time. Another said that once affective mapping became standard, no one would have to accuse anyone of exaggerating distress ever again. A third asked whether the clip had been shared with the medical team or whether there was "full biometric context."
+In the auxiliary pane, sampled reactions had already begun arranging the man into public use. Prayers. Judgments. Amateur diagnoses. One commenter wrote that clinics should be allowed to use emotional-state mirroring so families could prove what was happening in real time. Another said that once affective mapping became standard, no one would have to accuse anyone of exaggerating distress ever again. A third asked whether the clip had been shared with the medical team or whether there was "full biometric context."
 
 Leah muted the video, then unmuted it. Guidance still preferred audio review where feasible. The man said, more softly this time, "Please don't make me visible like this."
 
@@ -803,7 +802,7 @@ Jyeunn came in from the hall carrying the brass bell and a bundle of folded blan
 
 Nora made a soft sound that might have been a laugh and went back to the lamps.
 
-The room assembled itself around work. Cups unstacked. kettle filled. cushions placed. Someone adjusted the thermostat and declared the building permanently opposed to human comfort. A younger man Leah recognized from two weeks earlier arrived carrying a bag of cookies and was immediately sent back out for napkins. Nothing in the activity felt performatively communal. That was part of what made it satisfying. The room did not ask anyone to symbolize belonging. It only kept presenting tasks small enough to enter.
+The room assembled itself around work. Cups unstacked. Kettle filled. Cushions placed. Someone adjusted the thermostat and declared the building permanently opposed to human comfort. A younger man Leah recognized from two weeks earlier arrived carrying a bag of cookies and was immediately sent back out for napkins. Nothing in the activity felt performatively communal. That was part of what made it satisfying. The room did not ask anyone to symbolize belonging. It only kept presenting tasks small enough to enter.
 
 By the time people began arriving in earnest, Leah had already helped make the room possible. The fact altered her relation to it in a way she did not trust enough to name, though she noticed she no longer paused at the doorway as if awaiting terms.
 
@@ -955,7 +954,7 @@ Jyeunn nodded. "A burden on the whole community."
 
 Nora snorted and disappeared into the hall.
 
-Leah set the napkins down and began stacking the remaining chairs with Jyeunn. Up close, the work was satisfyingly unimportant. Metal legs. rubber feet. the soft complaint of folding mechanisms that had seen too many Thursdays. When the last chair was against the wall, the back room no longer looked like refuge. It looked like a rented space again, temporary and plain. That should have diminished it. Instead it made the fact of its existence feel more deliberate.
+Leah set the napkins down and began stacking the remaining chairs with Jyeunn. Up close, the work was satisfyingly unimportant. Metal legs. Rubber feet. The soft complaint of folding mechanisms that had seen too many Thursdays. When the last chair was against the wall, the back room no longer looked like refuge. It looked like a rented space again, temporary and plain. That should have diminished it. Instead it made the fact of its existence feel more deliberate.
 
 Jyeunn tied off the cloth bag around the bell.
 
@@ -1141,7 +1140,7 @@ Martha set her cup on the floor beside her chair.
 
 "The problem is not only mediation," she said. "It is retention. Replay. Comparison. Reference. Once a feeling can outlast the human moment in which it occurred, it becomes available to purposes not present at its birth." Her voice remained even, almost dry. "People keep imagining the danger as voyeurism. That is childish. The larger danger is infrastructure."
 
-Leah thought of her office. Dashboards. summaries. model confidence. All the systems that called themselves neutral once a human life had been flattened enough to travel.
+Leah thought of her office. Dashboards. Summaries. Model confidence. All the systems that called themselves neutral once a human life had been flattened enough to travel.
 
 The nurse said, "But if somebody's having a severe internal event and can't describe it, I can still see why clinicians or families would want some kind of retained reference. Not because they want control. Because they don't want to fail the person next time."
 
@@ -1267,7 +1266,7 @@ Jyeunn looked down at the phone once before answering.
 
 The room, already quiet, seemed to withdraw even further from noise.
 
-Leah felt the phrase move through her with the same procedural chill as language from work dashboards and escalation notices. Session-derived. baseline. active. Words built to drain desecration of its heat and make it portable.
+Leah felt the phrase move through her with the same procedural chill as language from work dashboards and escalation notices. Session-derived. Baseline. Active. Words built to drain desecration of its heat and make it portable.
 
 Martha, who had been putting on her shoes by the door, stopped with one hand on the wall.
 
@@ -1465,7 +1464,7 @@ Nora stood too.
 
 "That at least I can help with."
 
-By the time Leah left, it was fully dark. She drove home with the windows up and the radio off, the email's phrases moving through her head with the persistence of contamination. comparative integrity assessment. internal model consistency. no identifying personal narrative content.
+By the time Leah left, it was fully dark. She drove home with the windows up and the radio off, the email's phrases moving through her head with the persistence of contamination. Comparative integrity assessment. Internal model consistency. No identifying personal narrative content.
 
 At a light on Wilshire she found herself saying, aloud to the car, "It was hers," as if the sentence required a witness even when she was alone.
 
@@ -1477,7 +1476,7 @@ The letter came from an ethics liaison office with three names in the signature 
 
 Leah read the phrase subjective misunderstanding three times before moving on.
 
-By then the break room around her had acquired its usual midday noise. Microwave doors. ice dispenser. Someone arguing cheerfully about whether a product launch deck needed more human warmth and less clinical certainty, as if those two things were ordinary design variables living on the same slider. Brandon came in, saw her face, and paused halfway to the coffee machine.
+By then the break room around her had acquired its usual midday noise. Microwave doors. Ice dispenser. Someone arguing cheerfully about whether a product launch deck needed more human warmth and less clinical certainty, as if those two things were ordinary design variables living on the same slider. Brandon came in, saw her face, and paused halfway to the coffee machine.
 
 "You look like policy just invented a new crime against syntax," he said.
 
@@ -1577,7 +1576,7 @@ Before Jyeunn could answer, Martha did.
 
 Her voice never rose. That was what gave it reach.
 
-Nora began passing copies around the circle. The papers moved from hand to hand with a care that felt almost liturgical and nothing like comfort. Leah took one and looked again at the same dead phrases. evolving terminology. derivative calibration outputs. precautionary rather than remedial.
+Nora began passing copies around the circle. The papers moved from hand to hand with a care that felt almost liturgical and nothing like comfort. Leah took one and looked again at the same dead phrases. Evolving terminology. Derivative calibration outputs. Precautionary rather than remedial.
 
 She could feel the room splitting not by affection or even by outrage, but by what each person still believed institutions were capable of once they had crossed a line and named the crossing a process issue.
 
@@ -1629,7 +1628,7 @@ There was a breath, and then Nora said, in the flat voice people used when they 
 
 The kettle clicked off behind Leah with absurd courtesy.
 
-For a second the room stayed visually intact while meaning failed to arrive. Spoon. mug. unopened mail on the table. The folded dish towel by the sink. Then the sentence entered all at once and rearranged the kitchen around it.
+For a second the room stayed visually intact while meaning failed to arrive. Spoon. Mug. Unopened mail on the table. The folded dish towel by the sink. Then the sentence entered all at once and rearranged the kitchen around it.
 
 "What?" she said, not because she had not heard the words but because the order they had been placed in felt structurally impossible.
 
@@ -1863,7 +1862,7 @@ That was what frightened her.
 
 The message went out before she left.
 
-On the drive home, her phone kept lighting up on the passenger seat with replies arriving in quick succession. shocked. unforgivable. after everything they did to her. no more silence. The city moved around her with its usual careless continuity. Brake lights. storefronts. a bus bench ad promising better behavioral insight through integrated health data.
+On the drive home, her phone kept lighting up on the passenger seat with replies arriving in quick succession. Shocked. Unforgivable. After everything they did to her. No more silence. The city moved around her with its usual careless continuity. Brake lights. Storefronts. A bus bench ad promising better behavioral insight through integrated health data.
 
 At a red light on Vermont she thought of Nora's sentence, the same world, and of the other sentence that had gone out beneath it. Converging violences.
 
@@ -1971,7 +1970,7 @@ Nora said, "No. It is a moral merger."
 
 "Maybe because the moral merger is real," Daniel said. "If we start from the police report every time, the institution gets to keep calling the retained-session betrayal a specialized issue for specialists. Martha spent her last weeks trying to tell us it wasn't specialized."
 
-Leah thought of the vigil message, the phrase converging violences, the quick replies on her phone afterward. after everything they did to her. no more silence. She had been unsettled by the blur and still was. But she also knew what happened to language that arrived too disinfected. Institutions welcomed it, thanked it for its nuance, then filed it where urgency went to become process.
+Leah thought of the vigil message, the phrase converging violences, the quick replies on her phone afterward. After everything they did to her. No more silence. She had been unsettled by the blur and still was. But she also knew what happened to language that arrived too disinfected. Institutions welcomed it, thanked it for its nuance, then filed it where urgency went to become process.
 
 That recognition sat in her with the weight of complicity before she had even acted.
 
@@ -2191,7 +2190,7 @@ She went with them anyway.
 
 The first HumansRHumans meeting took place in a probate conference room with somebody else's inheritance chart still faintly ghosting the whiteboard.
 
-Leah stood in the doorway a second longer than necessary, taking in the room's municipal sadness. Gray carpet. a rectangular table too long for warmth. stackable chairs with navy seats. a carafe of water beside a sleeve of paper cups. Through the glass wall that looked onto the darkened office beyond, she could see cubicles, filing cabinets, and the small green light of a copier left on overnight as if bureaucracy itself preferred not to sleep completely.
+Leah stood in the doorway a second longer than necessary, taking in the room's municipal sadness. Gray carpet. A rectangular table too long for warmth. Stackable chairs with navy seats. A carafe of water beside a sleeve of paper cups. Through the glass wall that looked onto the darkened office beyond, she could see cubicles, filing cabinets, and the small green light of a copier left on overnight as if bureaucracy itself preferred not to sleep completely.
 
 Nora had erased most of the old diagram, but not all of it. A few dry-erase remnants remained in the top corner: trust, residue, beneficiary, a rectangle with arrows pointing outward. Beneath that, in fresh black marker, she had written:
 
@@ -2313,7 +2312,7 @@ Daniel said, "Then we need a public list and an inner list."
 
 Tomas finally sat down.
 
-"So what are we screening for? Agreement? credibility? discipline?"
+"So what are we screening for? Agreement? Credibility? Discipline?"
 
 "Capacity," Jyeunn said.
 
@@ -2335,7 +2334,7 @@ Everyone looked at her. Not suspiciously. With attention.
 
 She kept going because stopping would have made the sentence sound accidental.
 
-"If outrage gets people faster access than discipline, you'll build around outrage. If grief becomes proof of seriousness, people will perform grief. If the first inner space is too loose, the people who most want to be seen wanting this will dominate before the people most damaged by it figure out whether it's safe to speak." She looked at the agenda in front of her, not because it contained the answer but because looking at people for too long while saying something true still made her feel overexposed. "So you have to decide what the first door is for. Witness? Support? organizing? philosophy? press? If it's all of them, the loudest use wins."
+"If outrage gets people faster access than discipline, you'll build around outrage. If grief becomes proof of seriousness, people will perform grief. If the first inner space is too loose, the people who most want to be seen wanting this will dominate before the people most damaged by it figure out whether it's safe to speak." She looked at the agenda in front of her, not because it contained the answer but because looking at people for too long while saying something true still made her feel overexposed. "So you have to decide what the first door is for. Witness? Support? Organizing? Philosophy? Press? If it's all of them, the loudest use wins."
 
 Nora's fingers had stopped above the keyboard.
 
@@ -2427,7 +2426,7 @@ People left in twos and threes. Amina to finish notes from the clinic. Daniel to
 
 Soon only Jyeunn, Nora, and Leah remained.
 
-The office after-hours had its own kind of fatigue. Hall lights dimmed. copier cycling somewhere down the corridor. the building settling into its cheaper nighttime self. Nora was packing cables into her bag with the concentrated irritation of someone who considered every cord a personal affront. Jyeunn stood at the whiteboard looking at the principles list as if measuring what proportion of it would survive contact with time.
+The office after-hours had its own kind of fatigue. Hall lights dimmed. Copier cycling somewhere down the corridor. The building settling into its cheaper nighttime self. Nora was packing cables into her bag with the concentrated irritation of someone who considered every cord a personal affront. Jyeunn stood at the whiteboard looking at the principles list as if measuring what proportion of it would survive contact with time.
 
 Leah gathered the leftover printouts into one neat stack because no one had told her not to and because tidying paper still felt like the smallest honest use of hands.
 
@@ -2572,7 +2571,7 @@ Leah clicked into channel descriptions as they spoke.
 
 "Also agreed."
 
-"Internal-discussion needs rules in the header, not just in a pinned document nobody reads. Evidence. no rumor. no press contact through this channel. no posting material that isn't yours to disclose."
+"Internal-discussion needs rules in the header, not just in a pinned document nobody reads. Evidence. No rumor. No press contact through this channel. No posting material that isn't yours to disclose."
 
 Nora was quiet for a second.
 
@@ -2624,7 +2623,7 @@ Not power exactly.
 
 Delegated responsibility wearing power's silhouette.
 
-She shut the laptop at one-thirteen in the morning and stood at the counter a moment longer than necessary before going to bed. The apartment had the same old sounds in it. Refrigerator motor. pipes in the wall. laughter from somebody else's television bleeding through drywall. But another rhythm had entered the place now. Not just meetings. Ongoingness.
+She shut the laptop at one-thirteen in the morning and stood at the counter a moment longer than necessary before going to bed. The apartment had the same old sounds in it. Refrigerator motor. Pipes in the wall. Laughter from somebody else's television bleeding through drywall. But another rhythm had entered the place now. Not just meetings. Ongoingness.
 
 By the next Tuesday, there were thirty-seven requests waiting in triage.
 
@@ -2712,7 +2711,7 @@ For decisions.
 
 Questions to ask before admitting someone deeper.
 
-Patterns in first messages that often meant performance. Words that had begun arriving with too much appetite inside them. sovereign, trespass, contamination, traitor. Names of people Jyeunn thought might need direct contact before they stumbled into public language not built to hold them.
+Patterns in first messages that often meant performance. Words that had begun arriving with too much appetite inside them. Sovereign, trespass, contamination, traitor. Names of people Jyeunn thought might need direct contact before they stumbled into public language not built to hold them.
 
 The notebook should have embarrassed her. Instead it gave her the same severe calm some people got from sharpened knives or alphabetized files. A room was becoming itself. She was helping decide how.
 
@@ -2794,7 +2793,7 @@ Leah did not admit him to internal. She moved him to public-updates only and clo
 
 forwarded / unknown path
 
-Ravi's sheet had become cleaner than anything else in the movement. Source. access level. concerns. follow-up. duplicate? He never used the comment field for opinions when a shorter fact would do. Leah trusted him increasingly because he behaved as if documentation were a way of reducing appetite rather than extending it.
+Ravi's sheet had become cleaner than anything else in the movement. Source. Access level. Concerns. Follow-up. Duplicate? He never used the comment field for opinions when a shorter fact would do. Leah trusted him increasingly because he behaved as if documentation were a way of reducing appetite rather than extending it.
 
 That week his color-coding acquired a fourth shade.
 
@@ -3145,7 +3144,7 @@ She left it.
 
 That choice became visible within an hour.
 
-By noon, the thread had turned from abstract ethics to a list of institutions attached to the panel on Empathy Systems and Clinical Trust. Hospital affiliation. clinical fellowship sponsor. continuing-education host. conference venue. board members listed publicly on the foundation page. None of it had the feel of ranting. Ravi began a shared sheet titled Panel Response Contacts. Nora dropped in once to correct a legal citation and then disappeared again. Celia suggested dividing actions into public letter, professional complaint, and attendance pressure. Daniel proposed participant testimony if anyone consented. A newer member named Marisol, a public-interest communications director from San Diego, offered to draft language that would be "firm enough to generate consequence without drifting into language they can dismiss as menace."
+By noon, the thread had turned from abstract ethics to a list of institutions attached to the panel on Empathy Systems and Clinical Trust. Hospital affiliation. Clinical fellowship sponsor. Continuing-education host. Conference venue. Board members listed publicly on the foundation page. None of it had the feel of ranting. Ravi began a shared sheet titled Panel Response Contacts. Nora dropped in once to correct a legal citation and then disappeared again. Celia suggested dividing actions into public letter, professional complaint, and attendance pressure. Daniel proposed participant testimony if anyone consented. A newer member named Marisol, a public-interest communications director from San Diego, offered to draft language that would be "firm enough to generate consequence without drifting into language they can dismiss as menace."
 
 That sentence, too, sounded adult.
 
@@ -3191,7 +3190,7 @@ Leah watched Daniel circle one of the names on Ravi's sheet: Dr. Evelyn Sato, fo
 
 "Sato is the clearest point of contact," Daniel said. "Not because she's singularly guilty. Because she's public, institutionally legible, and already standing under the language we're contesting."
 
-"Then make the pressure institutional by routing it through every professional surface she is using," Marisol said. "Host. hospital. licensing board. continuing-ed sponsor. panel moderator. Not personal attack. Consequence mapping."
+"Then make the pressure institutional by routing it through every professional surface she is using," Marisol said. "Host. Hospital. Licensing board. Continuing-ed sponsor. Panel moderator. Not personal attack. Consequence mapping."
 
 Leah felt the chill of the phrase immediately.
 
@@ -3583,7 +3582,7 @@ Leah read the line twice.
 
 The document was serious. It was exact. It was also, she could feel immediately, late.
 
-That feeling stayed with her through the rest of the shift. Queue. decision. rationale. submit. A clip of a woman recording herself outside a fertility clinic explaining why she had started posting hormone results because the raw numbers felt truer than her own account of panic. A man filming his brother sobbing in a parking lot after discharge papers. A policy memo about escalating public sensitivity around clinical privacy claims. Everywhere the same structure, the same translation of people into portable proof. By the time Leah badged out, Jyeunn's note had already picked up nineteen replies and two side threads.
+That feeling stayed with her through the rest of the shift. Queue. Decision. Rationale. Submit. A clip of a woman recording herself outside a fertility clinic explaining why she had started posting hormone results because the raw numbers felt truer than her own account of panic. A man filming his brother sobbing in a parking lot after discharge papers. A policy memo about escalating public sensitivity around clinical privacy claims. Everywhere the same structure, the same translation of people into portable proof. By the time Leah badged out, Jyeunn's note had already picked up nineteen replies and two side threads.
 
 Most of the replies began with gratitude.
 
@@ -3595,7 +3594,7 @@ Necessary reset.
 
 We need this discipline.
 
-And then, beneath the gratitude, caveats. Questions. tactical refinements shaped like assent.
+And then, beneath the gratitude, caveats. Questions. Tactical refinements shaped like assent.
 
 Does core review mean pause or simply higher threshold?
 
@@ -3745,7 +3744,7 @@ The sentence slowed nothing.
 
 Jyeunn did not respond that night.
 
-Leah sat at the kitchen table with moderator view open and the urge to do something that had no operational form. Nothing in Second Bell's post crossed a clean rule. If anything, the account had absorbed the new limits and re-expressed them in more portable doctrine. disciplined. public. nonhumiliating. The exact language of the movement's own restraint had become the mechanism by which restraint could be bypassed without ever having to name itself as bypassed.
+Leah sat at the kitchen table with moderator view open and the urge to do something that had no operational form. Nothing in Second Bell's post crossed a clean rule. If anything, the account had absorbed the new limits and re-expressed them in more portable doctrine. Disciplined. Public. Nonhumiliating. The exact language of the movement's own restraint had become the mechanism by which restraint could be bypassed without ever having to name itself as bypassed.
 
 She did not delete the post.
 
@@ -3933,9 +3932,9 @@ Because it was not.
 
 It did not call the news victory. It did not use the movement to enlarge itself. It named the thing that mattered most to the older moral vocabulary: honesty entering public structure at last, however late and however incompletely.
 
-The rest of her shift moved around the news without ever really incorporating it. Queue. rationale. submit. A mother challenging the removal of a clip of her teenage son's panic attack because the comments had become the only place strangers believed her. A livestream of a couple fighting over whether one of them had the right to post a hospital bracelet. Platform language about privacy harm and exploitative intimacy. Everywhere the same old bargain between suffering and circulation, but now with her phone still warming every few minutes beneath the desk as the channels filled with links, summaries, arguments, and the peculiar, embarrassed relief of people discovering that some of what they had said in fury had finally been ratified by institutions they did not trust.
+The rest of her shift moved around the news without ever really incorporating it. Queue. Rationale. Submit. A mother challenging the removal of a clip of her teenage son's panic attack because the comments had become the only place strangers believed her. A livestream of a couple fighting over whether one of them had the right to post a hospital bracelet. Platform language about privacy harm and exploitative intimacy. Everywhere the same old bargain between suffering and circulation, but now with her phone still warming every few minutes beneath the desk as the channels filled with links, summaries, arguments, and the peculiar, embarrassed relief of people discovering that some of what they had said in fury had finally been ratified by institutions they did not trust.
 
-By noon, public statements were already proliferating. Regulatory agencies. hospital associations. investor calls framed as sober adaptation. An op-ed draft from Marisol that she had not yet posted, only circulated internally, arguing that the package did not heal the past but might close the most expansionist futures. Ravi was annotating the rule language in a side document. Nora had opened a temporary channel called implementation-watch and pinned three legal summaries so no one could pretend they had read more than headlines if they had not.
+By noon, public statements were already proliferating. Regulatory agencies. Hospital associations. Investor calls framed as sober adaptation. An op-ed draft from Marisol that she had not yet posted, only circulated internally, arguing that the package did not heal the past but might close the most expansionist futures. Ravi was annotating the rule language in a side document. Nora had opened a temporary channel called implementation-watch and pinned three legal summaries so no one could pretend they had read more than headlines if they had not.
 
 The movement was behaving, for a brief strange interval, like something capable of concluding a sentence.
 
@@ -3969,7 +3968,7 @@ The last two words were not cynicism. Only caution.
 
 Daniel exhaled through his nose and rubbed a hand once over his mouth.
 
-"I keep thinking about Martha," he said. "About how impossible it felt, for a while, to get anyone outside a room like this even to admit the category of harm. And now the language is federal. Severe limits. criminal penalties. audit requirements." He looked around the room, embarrassed by what he was about to say and saying it anyway. "I don't know. Maybe there should be some version of stopping in that. Or narrowing. Or becoming something else."
+"I keep thinking about Martha," he said. "About how impossible it felt, for a while, to get anyone outside a room like this even to admit the category of harm. And now the language is federal. Severe limits. Criminal penalties. Audit requirements." He looked around the room, embarrassed by what he was about to say and saying it anyway. "I don't know. Maybe there should be some version of stopping in that. Or narrowing. Or becoming something else."
 
 The sentence stayed in the air longer than Leah expected.
 
@@ -3977,7 +3976,7 @@ Not because it was naive.
 
 Because everyone in the room understood that he had said something almost none of them had allowed themselves to form clearly even in private. The possibility that the movement might not have to keep becoming sharper in order to remain honest. The possibility that having moved the world this far might obligate them, morally, to ask what remained necessary and what had simply become familiar.
 
-Nora said, "Implementation watch. Archive work. participant support. litigation tracking if they start gutting it through exceptions."
+Nora said, "Implementation watch. Archive work. Participant support. Litigation tracking if they start gutting it through exceptions."
 
 Her tone was practical, but Leah could hear what made the list possible.
 
@@ -4971,7 +4970,7 @@ Capacity.
 
 At work the day's queue was almost offensive in its familiarity. Escalations around hospital footage. Appeals from users who believed witnessing and exposure were the same thing if the exposed person had already become content elsewhere. A policy sync about the rise in emotionally intimate recordings attached to medical crowdfunding posts. Every sentence in the office kept circling the same dead center without ever naming it: what did the public think it was owed of another person's inwardness once need, profit, and testimony got braided together?
 
-Leah moved through the queue because she knew how. Accept. remove. escalate. annotate. The actions still lined up under her hands even while another structure, on another screen, was proving that knowledge and control were not the same category at all.
+Leah moved through the queue because she knew how. Accept. Remove. Escalate. Annotate. The actions still lined up under her hands even while another structure, on another screen, was proving that knowledge and control were not the same category at all.
 
 On her break she checked internal again.
 
@@ -4999,7 +4998,7 @@ She stared at the revised sentence until the screen dimmed.
 
 The machine continued.
 
-Not only the campaign machinery. The whole thing. Participant follow-up. archive work. intake review. note cleanup. legal tracking. reading-room. reminders about public updates. people asking whether Thursday's sit was still on. people offering rides. people requesting copies of the latest FAQ for campus groups Leah had never heard of.
+Not only the campaign machinery. The whole thing. Participant follow-up. Archive work. Intake review. Note cleanup. Legal tracking. reading-room. Reminders about public updates. People asking whether Thursday's sit was still on. People offering rides. People requesting copies of the latest FAQ for campus groups Leah had never heard of.
 
 An uncanny normality settled over all of it. Not because the movement had resolved its contradiction. Because contradiction had become one of the systems it knew how to metabolize.
 
@@ -5019,7 +5018,7 @@ One corner of their mouth shifted. Not quite a smile.
 
 "Yes."
 
-She crossed to the side table and began unstacking cups that did not need unstacking. The room smelled of stems, wet paper, and the faint metallic heat of the kettle base plugged in but not yet switched on. For a while there was only ceramic and water and the florist sounds from the front of the shop. Scissors. refrigerator hum. the little bell above the door.
+She crossed to the side table and began unstacking cups that did not need unstacking. The room smelled of stems, wet paper, and the faint metallic heat of the kettle base plugged in but not yet switched on. For a while there was only ceramic and water and the florist sounds from the front of the shop. Scissors. Refrigerator hum. The little bell above the door.
 
 Leah said, "Did you sleep?"
 
