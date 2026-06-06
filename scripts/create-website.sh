@@ -7,8 +7,10 @@ repo_root=$(cd -- "$script_dir/.." && pwd)
 website_dir="$repo_root/website"
 cover_source="$repo_root/cover.png"
 pdf_source="$repo_root/MANUSCRIPT.pdf"
+epub_source="$repo_root/Only I Can Feel Me.epub"
 cover_target="$website_dir/cover.png"
 pdf_target="$website_dir/Only-I-Can-Feel-Me.pdf"
+epub_target="$website_dir/Only I Can Feel Me.epub"
 html_target="$website_dir/index.html"
 
 require_file() {
@@ -22,11 +24,13 @@ require_file() {
 
 require_file "$cover_source"
 require_file "$pdf_source"
+require_file "$epub_source"
 
 mkdir -p "$website_dir"
 
 cp "$cover_source" "$cover_target"
 cp "$pdf_source" "$pdf_target"
+cp "$epub_source" "$epub_target"
 
 cat << 'EOF' > "$html_target"
 <!DOCTYPE html>
@@ -459,7 +463,7 @@ cat << 'EOF' > "$html_target"
           <div class="meta-list">
             <div class="meta-item">
               <span class="meta-label">Format</span>
-              <p class="meta-value">Full manuscript PDF</p>
+              <p class="meta-value">Full manuscript PDF + EPUB</p>
             </div>
             <div class="meta-item">
               <span class="meta-label">Signal</span>
@@ -472,8 +476,9 @@ cat << 'EOF' > "$html_target"
           </div>
 
           <div class="cta-wrap">
-            <a class="cta-button" href="Only-I-Can-Feel-Me.pdf" download>[ DOWNLOAD MANUSCRIPT ]</a>
-            <p class="cta-caption">Direct PDF download. No platform mediation. No account required.</p>
+            <a class="cta-button" href="Only-I-Can-Feel-Me.pdf" download>[ DOWNLOAD PDF ]</a>
+            <a class="cta-button" href="Only%20I%20Can%20Feel%20Me.epub" download>[ DOWNLOAD EPUB ]</a>
+            <p class="cta-caption">Direct PDF and EPUB downloads. No platform mediation. No account required.</p>
           </div>
         </aside>
       </section>
@@ -497,4 +502,5 @@ EOF
 
 printf 'Wrote %s\n' "$cover_target"
 printf 'Wrote %s\n' "$pdf_target"
+printf 'Wrote %s\n' "$epub_target"
 printf 'Wrote %s\n' "$html_target"

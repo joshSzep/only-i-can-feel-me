@@ -19,4 +19,5 @@ run_step() {
 
 run_step create-manuscript.sh
 run_step create-pdf.sh
+run_step create-epub.sh
 run_step create-website.sh
